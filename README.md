@@ -2,7 +2,7 @@
 
 
 
-I hold a Bachelor's degree in Physical Education from Universidade Castelo Branco (2016–2020) and a Master's degree in Exercise and Sport Sciences from Universidade do Estado do Rio de Janeiro (2023–2024). I am currently a doctoral student in Sport Sciences at Universidade Federal de Minas Gerais (2025–2029).
+I graduated in Physical Education from Universidade Castelo Branco (2016–2020) and a Master's degree in Exercise and Sport Sciences from Universidade do Estado do Rio de Janeiro (2023–2024). I am currently a doctoral student in Sport Sciences at Universidade Federal de Minas Gerais (2025–2029).
 
  - 🔭 I’m interested in research on mental fatigue and resistance training.
  - 📍 My academic profiles: 
