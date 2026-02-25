@@ -8,7 +8,6 @@ I hold a Bachelor’s degree in Physical Education from Universidade Castelo Bra
   - ORCID: https://orcid.org/0000-0002-6961-1104
   - Google Scholar: https://scholar.google.com.br/citations?hl=pt-BR&user=EJyPTFEAAAAJ
 - 📫 Contact: larissaruizbastoss@gmail.com
--->
 <!--
 **Larissaaruiz/Larissaaruiz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
